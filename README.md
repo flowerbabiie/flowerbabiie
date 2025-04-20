@@ -1,6 +1,7 @@
 ♥︎  read B4 U interact ! ♥︎
 
-![image](https://github.com/user-attachments/assets/c28ec81b-0dbe-4ca8-9c4c-9c1a1417a5ba)
+![image](https://github.com/user-attachments/assets/95372033-056d-40ed-9483-928b56ec5e2d)
+
 
 
 i mostly just vibe around docks in PT,, i don't talk much so if you would like to interact just whisper me ! i block freely,, i usually block okegom skins or skins that make me uncomfortable so apologies for that,,, 🫡
