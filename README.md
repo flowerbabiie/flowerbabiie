@@ -15,19 +15,19 @@ stuff i enjoy:
 
 •demon slayer
 
-
 •splatoon
-
 
 •fortnite
 
+•fire emblem
+
+•pokemon
 
 •dragalia lost
 
 •cookie run ovenbreak/kingdom
 
 •idv
-
 
 •hoyoverse (hi3/star rail/impact)
 
