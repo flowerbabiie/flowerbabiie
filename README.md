@@ -8,7 +8,7 @@ i mostly just vibe around docks in PT,, i don't talk much so if you would like t
 
 stuff i enjoy:
 
-•ocs/
+-•ocs
 •demon slayer/
 •splatoon/
 •fortnite/
