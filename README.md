@@ -1,10 +1,8 @@
 ♥︎  read B4 U interact ! ♥︎
 
-•
 
 i mostly just vibe around docks in PT,, i don't talk much so if you would like to interact just whisper me ! i block freely,, 🫡
 
-•
 
 ╭── ⋅ ⋅ ── ♡ ── ⋅ ⋅ ──╮
 
