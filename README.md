@@ -1,7 +1,9 @@
 ♥︎  read B4 U interact ! ♥︎
+
 •
 i mostly just vibe around docks in PT,, i don't talk much so if you would like to interact just whisper me ! i block freely,, 🫡
 •
+
 ╭── ⋅ ⋅ ── ♡ ── ⋅ ⋅ ──╮
 stuff i enjoy:
 •ocs
@@ -29,8 +31,10 @@ DNI if u:
 •are just generally super rude or make kys/crude jokes
  •Purposely make gross joke skins and harass ppl (those Yuri, phallic, or any other troll skins rlly)
 ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯
+
 ♡ Thanks for reading !! :D ♡
 
+![image](https://github.com/user-attachments/assets/ce1b2b11-27e5-4b9c-a1f2-f1e96392b0dd)
 
 
 
