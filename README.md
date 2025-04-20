@@ -7,18 +7,17 @@ i mostly just vibe around docks in PT,, i don't talk much so if you would like t
 ╭── ⋅ ⋅ ── ♡ ── ⋅ ⋅ ──╮
 
 stuff i enjoy:
-•ocs
 
-•demon slayer 
-
-•splatoon
-•fortnite
-•dragalia lost
-•cookie run ovenbreak/kingdom
-•idv
-•hoyoverse (hi3/star rail/impact)
-•okegom (just don't be a pr*ship pls)
-•sanrio
+•ocs/
+•demon slayer/
+•splatoon/
+•fortnite/
+•dragalia lost/
+•cookie run ovenbreak/kingdom/
+•idv/
+•hoyoverse (hi3/star rail/impact)/
+•okegom (just don't be a pr*ship pls)/
+•sanrio/
 
 i'll add more if i can think abt it…
 
@@ -30,11 +29,11 @@ i'll add more if i can think abt it…
 
 DNI if u:
 
-•support funamusea / proshippers / or problematic content. i'm weird but im not that weird,,,
-•dsmp/gnf fan
-•douaka fans dni if i'm in my douma skin
- •under the age of 16
-•are just generally super rude or make kys/crude jokes
+•support funamusea / proshippers / or problematic content. i'm weird but im not that weird,,,/
+•dsmp/gnf fan/
+•douaka fans dni if i'm in my douma skin/
+•under the age of 16/
+•are just generally super rude or make kys/crude jokes/
  •Purposely make gross joke skins and harass ppl (those Yuri, phallic, or any other troll skins rlly)
  
 ╰── ⋅ ⋅ ── ✩ ── ⋅ ⋅ ──╯
