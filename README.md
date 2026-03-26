@@ -31,8 +31,6 @@ stuff i enjoy:
 
 •hoyoverse (hi3/star rail/impact)
 
-•okegom (just don't be a pr*ship pls)
-
 •sanrio
 
 
@@ -43,7 +41,8 @@ i'll add more if i can think abt it…
 
 ♡ Thanks for reading !! :D ♡
 
-![image](https://github.com/user-attachments/assets/ce1b2b11-27e5-4b9c-a1f2-f1e96392b0dd)
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/673c5a01-d5ee-46e1-96d1-01444b57e8d8" />
+
 
 
 
