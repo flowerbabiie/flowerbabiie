@@ -4,7 +4,7 @@
 
 
 
-i mostly just vibe around docks in PT,, i don't talk much so if you would like to interact just whisper me ! i block freely,, i usually block okegom skins or skins that make me uncomfortable so apologies for that,,, 🫡
+i mostly just vibe around docks in PT,, i don't talk much so if you would like to interact just whisper me ! i block freely,, i usually block skins that make me uncomfortable so apologies for that,,, 🫡
 
 
 ╭── ⋅ ⋅ ── ♡ ── ⋅ ⋅ ──╮
@@ -32,6 +32,8 @@ stuff i enjoy:
 •hoyoverse (hi3/star rail/impact)
 
 •sanrio
+
+•elden ring/nightreign
 
 
 i'll add more if i can think abt it…
